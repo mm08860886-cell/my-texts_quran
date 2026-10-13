@@ -1,1 +1,0 @@
-# my-texts_quran
